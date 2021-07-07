@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lara9632  // Raymundo Lara Garcia
+- 👀 I’m interested in Web development, machine learning, AI, Data Science
+- 🌱 I never stop to learn
+- 💞️ I’m looking to collaborate on projects of AI, Machine Learning, Web design
+- 📫 Follow me on Facebook -- Raymundo Lara or linkedIn www.linkedin.com/in/raymundo-lara
